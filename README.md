@@ -1,9 +1,14 @@
 # Reflex-Flixy-Document
+
+
 document about how flixys not a good person
 
 
 Reflex's backend command hmm
-https://media.discordapp.net/attachments/1439150512338632735/1477773736156594310/image.png?ex=69a5fb8a&is=69a4aa0a&hm=46640d1f1f8547fe6bbba3871c9a759c8dce0327f6ecafaf85c18ba1792e0cc7&=&format=webp&quality=lossless
+
+
+<img width="1182" height="55" alt="image" src="https://github.com/user-attachments/assets/5fa8b13d-c3f2-4433-81a6-a99088eb16b4" />
+
 
 > claiming to be a "dev" but does NOT know how to change a command description???
 
