@@ -30,6 +30,8 @@ Reflex's backend command hmm
 ## also keeps stealing peeks launcher💔💔 
 <img width="1170" height="2532" alt="image" src="https://github.com/user-attachments/assets/122d6674-c448-48e1-abb1-bb4b269b6229" />
 
+## "dev" not knowing how to use a vps (months ago)
+<img width="751" height="98" alt="image" src="https://github.com/user-attachments/assets/d9831b38-c828-4cbb-9091-ee9532b88783" />
 
 
 
