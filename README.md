@@ -1,7 +1,8 @@
-# Reflex-Flixy-Document
+## FLIXY IS NOT WHO YOU THINK HE IS!!!!!!
+HE IS SOMEONE ELSE dm @cid_verse on discord to know the truth!!!!!!!!
 
 
-document about how flixys not a good person
+FLIXY DOC!!!
 
 
 Reflex's backend command hmm
