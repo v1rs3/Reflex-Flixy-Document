@@ -1,5 +1,5 @@
 ## FLIXY IS NOT WHO YOU THINK HE IS!!!!!!
-HE IS SOMEONE ELSE dm @cid_verse on discord to know the truth!!!!!!!!
+HE IS SOMEONE ELSE dm @v1rs3 on discord to know the truth!!!!!!!!
 
 
 FLIXY DOC!!!
