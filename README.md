@@ -1,8 +1,8 @@
 ## FLIXY IS NOT WHO YOU THINK HE IS!!!!!!
-HE IS SOMEONE ELSE dm @v1rs3 on discord to know the truth!!!!!!!!
+HE IS  ONE OF THE MOST HATED PEOPLE IN OGFN BUT I WONT REV HIS NAME HERE SO JS DM v1rs3 on dc 
 
 
-FLIXY DOC!!!
+REFLEX DOC!!!
 
 
 Reflex's backend command hmm
@@ -34,4 +34,19 @@ Reflex's backend command hmm
 <img width="751" height="98" alt="image" src="https://github.com/user-attachments/assets/d9831b38-c828-4cbb-9091-ee9532b88783" />
 
 
+## Still dont have ur own backend? NO SHAME TO VYNXZY HE IS NOT IN THIS DRAMA DONT INCLUDE HIM
+<img width="1501" height="772" alt="image" src="https://github.com/user-attachments/assets/42a87e11-2b60-467d-a014-dd660608e13c" />
 
+
+## MORE SKIDDING (SKIDS erbium,celesia,magnesium 
+<img width="771" height="628" alt="image" src="https://github.com/user-attachments/assets/47e73613-f63f-4b7e-ab50-d0d8396ba63b" />
+
+## more backend stuff
+<img width="466" height="235" alt="image" src="https://github.com/user-attachments/assets/77fc039b-831b-4629-b1a1-510078477aa2" />
+
+## straight lying abt having ppl on his "team"
+<img width="725" height="384" alt="image" src="https://github.com/user-attachments/assets/a77df430-d6c0-42bf-91ea-84d179f6c170" />
+
+## USING EON PAKS
+<img width="789" height="32" alt="image" src="https://github.com/user-attachments/assets/c32df589-0f4c-4d4e-aa05-07d5d0e11832" />
+i do not know if delayed gave perms but he said perms were 200$ which flixy likely didnt pay
