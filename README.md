@@ -24,8 +24,7 @@ Reflex's backend command hmm
 <img width="1177" height="104" alt="image" src="https://github.com/user-attachments/assets/240b3501-5f5f-47c2-9b9d-17c55874db9d" />
 
 
-## Him using his co owner💔💔
-<img width="1096" height="346" alt="image" src="https://github.com/user-attachments/assets/0c48484c-1173-4316-96ad-768736c14439" />
+
 
 ## also keeps stealing peeks launcher💔💔 
 <img width="1170" height="2532" alt="image" src="https://github.com/user-attachments/assets/122d6674-c448-48e1-abb1-bb4b269b6229" />
